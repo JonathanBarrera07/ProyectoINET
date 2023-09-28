@@ -1,2 +1,0 @@
-# VER TUTORIAL 
-## ASD.COM
